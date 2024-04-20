@@ -6,7 +6,7 @@ Hi, I’m @ssyasin
 
 💞️ Looking to collaborate on open-source Java projects that innovate backend systems and promote educational growth.
 
-📫 Contact me at ssempijjay1@mail.com or via Itrak. Let’s talk Java and collaboration opportunities!
+📫 Contact me at ssempijjay1@mail.com or via LinkedIn . Let’s talk Java and collaboration opportunities!
 
 😄 Pronouns: He/Him
 
